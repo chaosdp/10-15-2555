@@ -62,3 +62,7 @@ or or they flopped
 turn in
 to catch the legend of the wankers
 
+![image](https://github.com/chaosdp/10-15-2555/assets/123339503/85a62a75-3c20-4b4c-975c-ac73f02c1c94)
+
+
+
